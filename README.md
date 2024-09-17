@@ -21,7 +21,7 @@
 ---
 
 ### 📸 Tutorial
-**Watch this tutorial to show you how to use this tool:** https://www.youtube.com/watch?v=ejQ-D06IyWE
+**Watch this tutorial to show you how to use this tool:** https://www.youtube.com/watch?v=LRtKOHyULIM&t=6s
 
 ---
 
